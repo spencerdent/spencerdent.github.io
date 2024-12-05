@@ -1,1 +1,0 @@
-# spencerdent.github.io
